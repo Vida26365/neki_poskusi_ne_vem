@@ -1,3 +1,3 @@
-### to je pravi naslov2
+# Računalniski praktikum
 
 wiehfkegvkejvhleh
