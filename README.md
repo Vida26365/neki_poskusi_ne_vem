@@ -1,3 +1,3 @@
-# Računalniski praktikum
+# Računalniški praktikum
 
 wiehfkegvkejvhleh
